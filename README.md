@@ -8,4 +8,8 @@ meu nome é Ana Clara
 
 ###  Você entrar em contato comigo 📫
 
-palude
+0001130233753SP@al.educacao.sp.gov.br
+
+@aninhacbc
+
+![](https://media1.tenor.com/m/qlmwpq-MDs8AAAAC/shirley-temple-happy.gif)
